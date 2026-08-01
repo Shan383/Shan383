@@ -3,7 +3,7 @@
 **SOC Analyst | Digital Forensics & Incident Response (DFIR) | Threat Detection & Network Forensics**
 
 📍 Islamabad, Pakistan | 📧 [zeeshansajid383@gmail.com](mailto:zeeshansajid383@gmail.com)
-🔗 [LinkedIn](your-linkedin-url)
+🔗 [[LinkedIn](https://www.linkedin.com/in/zeeshan-sajid789)]
 
 ---
 
